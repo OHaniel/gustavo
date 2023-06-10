@@ -7,3 +7,5 @@ Animacion y motion capture
 https://www.youtube.com/watch?v=7WDBqXTAKDg&ab_channel=CGDive
 
 https://www.youtube.com/watch?v=uNK8S19OSmA
+
+https://www.youtube.com/watch?v=SBlO2w_9F10
